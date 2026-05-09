@@ -1,4 +1,4 @@
-
+Evernote for macOS professional Extension - OCR scanning and offline access offers the most advanced Evernote for macOS extension, with OCR scanning and offline access. Ideal for
 
 
 
